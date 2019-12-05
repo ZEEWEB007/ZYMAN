@@ -1,0 +1,2 @@
+# ZYMAN
+Technological Inquisitive Personality 
